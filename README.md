@@ -1,0 +1,1 @@
+# Efeitos-da-pandemia-no-mercado-de-a-es-BR
